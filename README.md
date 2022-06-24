@@ -44,4 +44,5 @@ Review your existing policies. Are they truly needed? Can they be simplified? Ar
 Practice Empathy
 
 In a recent study by DDI, empathy was found to be the most effective driver of performance, yet only 40% of leaders were found to be skilled at listening and responding with empathy. When I think of humanity, empathy is one of the pieces that stands out to me. People have lives outside of work, and when their child is sick (dog dies/parent needs care/marriage is failing), it will affect their work life. Be human about it. 
+
 The world will be a better place if these values are incorporated in every institution
