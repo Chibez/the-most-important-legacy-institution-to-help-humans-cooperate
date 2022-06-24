@@ -1,4 +1,4 @@
-# the-most-important-legacy-institution-to-help-humans-cooperate
+# The-most-important-legacy-institution-to-help-humans-cooperate
 
 
 
